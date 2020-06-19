@@ -9,3 +9,4 @@ Iron Man (deutsch: „Eisenmann“, in den ersten deutschen Veröffentlichungen 
 * Guter Kämpfer
 * Unbezwingbarer Wille
 
+> Frieden bedeutet, dass man einen größeren Stock hat, als der andere.
