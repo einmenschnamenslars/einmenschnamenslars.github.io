@@ -10,3 +10,5 @@ Iron Man (deutsch: „Eisenmann“, in den ersten deutschen Veröffentlichungen 
 * Unbezwingbarer Wille
 
 > Frieden bedeutet, dass man einen größeren Stock hat, als der andere.
+
+<img src="https://static1.srcdn.com/wordpress/wp-content/uploads/2020/04/Iron-Man-and-MCU-Anniversary-Background.jpg" />
